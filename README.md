@@ -1,0 +1,16 @@
+- 👋 Hi, I’m @Aimoh23
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- 🍑 i love......>34
+- 🛌 +>π true love <12
+-(76)==>13
+<!---
+Aimoh23/Aimoh23 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+- 🥰 i'm in love....
+- <get/kill[mood]
+- $🥰> i love ![Screenshot_20230927-220741](https://github.com/Aimoh23/Aimoh23/assets/146406432/0bd53dd4-1772-4266-aaeb-7e35c7480e1d)
+>close
